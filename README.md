@@ -1,1 +1,1 @@
-# SIS-INTELIGENTES-Lenguaje-de-Se-as-
+# SIS-INTELIGENTES-Lenguaje-de-Señas
